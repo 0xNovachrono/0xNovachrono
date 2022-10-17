@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @0xNovachrono
-- 👀 I’m currently leading business operation at Projecteuanthe.org
+- 👀 I’m currently leading business operation at Silentprotocol.org
 - 📫 Reach Me via,email- rsupport@projecteuanthe.org
 
 <!---
